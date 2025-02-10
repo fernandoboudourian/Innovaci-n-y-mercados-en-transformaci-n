@@ -1,1 +1,2 @@
-# Innovaci-n-y-mercados-en-transformaci-n
+# Innovación-y-mercados-en-transformación
+Los índices bursátiles han cambiado con la irrupción de la inteligencia artificial, blockchain y la biotecnología. Estas tecnologías están redefiniendo la forma en que las empresas operan y generan valor. La digitalización y la automatización impulsan nuevas oportunidades, mientras que la salud y la biotecnología atraen inversión. La clave está en adaptarse a estos cambios para aprovechar el potencial de crecimiento.
